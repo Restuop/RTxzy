@@ -6,7 +6,7 @@ BIG THANKS TO
 • My ortu
 • Nurutomo
 • Xteam
-• AlyaaXzy 
+• Ryuga 
 • BOTCAHX
 • Zeks
 • Penyedia Layanan API
